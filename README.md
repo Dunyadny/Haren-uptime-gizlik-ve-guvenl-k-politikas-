@@ -1,1 +1,0 @@
-# Haren-uptime-gizlik-ve-guvenl-k-politikas-
